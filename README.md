@@ -26,5 +26,5 @@ Here are some ideas to get you started:
 
 ✉ **Email**: sjongyuuu@gmail.com
 
-
+📝 **Blog**: https://velog.io/@sjongyuuu
 
